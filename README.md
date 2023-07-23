@@ -1,5 +1,5 @@
 ### Hi there I am @Chetansm684
-👨‍🎓 Fresher at IIIT Lucknow
+👨‍🎓 2nd Year Student at IIIT Lucknow
 
 🌱 I’m currently learning React
 
